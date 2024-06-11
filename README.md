@@ -41,7 +41,7 @@ I'm ok w/ any interactions so long as they're purely platonic!!
     
  Trigun/TMNT/Sk8/etc. fans!! 
   
- Literally anybody</p>
+ Literally anybody just dont be weird lmao</p>
  
  <h3>!!</h3>
   <p>ask for socials</p>
