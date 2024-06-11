@@ -16,7 +16,9 @@ I'm ok w/ any interactions so long as they're purely platonic!!
 
   I'm not very good w/ words so if I say/do anything that upsets u or makes u uncomfy pls lmk 
 
-  you may take inspo from my skins just dont outright copy em
+  you may take inspo from my skins just dont full-on copy em
+
+  im not on super often but im usually on whenever im not super busy
 
   I have many, many interests (ask me about em if ur curious!)
 
