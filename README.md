@@ -4,7 +4,7 @@
 <center>
   <h1> mona // any pronouns </h1>
 
-  <p> Hamha! I am mona, but I also go by other names as well.
+  <p> Hamha! I am mona!
     
   I'm a very quiet person and generally awkward w/ social interactions so will likely not talk much.
   I am very silly though once u get 2 know me!!
