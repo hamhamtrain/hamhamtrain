@@ -2,7 +2,7 @@
   <img src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExczJiMm44MGJmbmcxOGl2dmdmcmxqa2VsdGU1MWR6ZXhoM2V3NmZlbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TrSqUougSkFO0/giphy.gif" width="500"/>
   
 <center>
-  <h1> mona // any pronouns </h1>
+  <h1> mona // any pronouns // aroace</h1>
 
   <p> Hamha! I am mona!
     
