@@ -6,7 +6,7 @@
 
   <p> Hamha! I am mona!
     
-  I'm a very quiet person and generally awkward w/ social interactions so will likely not talk much.
+  I'm a quiet person and generally awkward w/ social interactions so will likely not talk much.
 I am very silly though once u get 2 know me!!
     
 I'm ok w/ any interactions so long as they're purely platonic!! 
