@@ -7,12 +7,12 @@
   <p> Hamha! I am mona!
     
   I'm a very quiet person and generally awkward w/ social interactions so will likely not talk much.
-  I am very silly though once u get 2 know me!!
+I am very silly though once u get 2 know me!!
     
 I'm ok w/ any interactions so long as they're purely platonic!! 
   If you happen to see me, feel free to drop by and say hi! however if i'm not respondin' i'm prolly afk/offtab/distracted, then whisps are ur best bet!
 
-  I have a tendency to say mew so don't get too surprised if i start meowing like a cat lmao (im normal i swear)
+  I say mew a lot so don't get too surprised if i start meowing like a cat lmao (im normal i swear)
 
   I'm not very good w/ words so if I say/do anything that makes u uncomfy pls lmk 
 
@@ -24,7 +24,7 @@ I'm ok w/ any interactions so long as they're purely platonic!!
 
   you may take inspo from my skins just dont full-on copy em
 
-  im ok w/ rp just not erp or anything like that, ask first if u wanna ship rp
+  not much of a roleplayer, but its still fine to rp w/ me - just no erp
 
   im not on super often but im usually on when im not super busy
 
