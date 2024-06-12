@@ -16,15 +16,14 @@ I'm ok w/ any interactions so long as they're purely platonic!!
 
   I'm not very good w/ words so if I say/do anything that makes u uncomfy pls lmk 
 
-  i run out of words pretty easy so dont feel too bad if i suddenly go quiet + dont respond much, i still listen + try 2 keep up
   
 
 
 
 
-  you may take inspo from my skins just dont full-on copy em
-
   not much of a roleplayer, but its still fine to rp w/ me - just no erp
+  
+  you may take inspo from my skins just dont full-on copy em
 
   im not on super often but im usually on when im not super busy
 
