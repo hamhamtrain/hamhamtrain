@@ -2,7 +2,7 @@
   <img src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExczJiMm44MGJmbmcxOGl2dmdmcmxqa2VsdGU1MWR6ZXhoM2V3NmZlbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TrSqUougSkFO0/giphy.gif" width="500"/>
   
 <center>
-  <h1> mona // any pronouns</h1>
+  <h1> mona // any pronouns // aroace</h1>
 
   <p> Hamha! I am mona!
     
@@ -10,13 +10,13 @@
 I am very silly though once u get 2 know me!!
     
 I'm ok w/ any interactions so long as they're purely platonic!! 
-  If you happen to see me, feel free to drop by and say hi! however if i'm not respondin' i'm prolly afk/offtab/distracted, then whisps are ur best bet!
+  If you happen to see me, feel free to drop by and say hi! 
+  
+  if i'm not respondin' i'm prolly afk/offtab/distracted, then whisps are ur best bet!
 
   I say mew a lot so don't get too surprised if i start meowing like a cat lmao (im normal i swear)
 
-  I'm not very good w/ words so if I say/do anything that makes u uncomfy pls lmk 
-
-  
+  I'm not very good w/ words so if I say/do anything that bothers u pls lmk 
 
 
 
