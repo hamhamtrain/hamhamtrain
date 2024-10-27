@@ -5,30 +5,51 @@
   <h1> mona // any pronouns // aroace</h1>
 
   <p> Hamha! I am mona! ☆
+
+  •☽────✧˖°˖☆˖°˖✧────☾•
     
  ☆ I'm a quiet person and generally awkward w/ social interactions so will likely not talk much.
 I am very silly though once u get 2 know me!!
+
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
     
 ☆ I'm ok w/ any interactions so long as they're purely platonic!! 
 
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
+
 ☆  If you happen to see me, feel free to drop by and say hi! 
+
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
   
 ☆ if i'm not respondin' i'm prolly afk/offtab/distracted, then whisps are ur best bet!
 
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
+
 ☆ I say mew a lot so don't get too surprised if i start meowing like a cat lmao (im normal i swear)
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
 ☆ I'm not very good w/ words so if I say/do anything that bothers u pls lmk 
+
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
 
 
 
 ☆ not much of a roleplayer, but its still fine to rp w/ me - just no erp
+
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
   
 ☆  you may take inspo from my skins just dont full-on copy em
 
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
+
 ☆  im not on super often but im usually on when im not super busy
 
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
+
 ☆  I have many, many interests (ask me about em if ur curious!)
+
+•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
 ☆  some of my interests include:
   
