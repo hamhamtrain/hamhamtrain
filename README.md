@@ -21,7 +21,7 @@ I am very silly though once u get 2 know me!!
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
   
-☆ if i'm not respondin' i'm prolly afk/offtab/distracted, then whisps are ur best bet!
+☆ if i'm afk/offtab/distracted, then whisps are ur best bet!
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
@@ -54,7 +54,7 @@ I am very silly though once u get 2 know me!!
 
 ☆  some of my interests include:
   
-☆  tmnt, trigun, tbhk, sk8, revstar, paralive, hamtaro + more!!
+☆  tmnt, lmk, trigun, tbhk, sk8, revstar, paralive, hamtaro + more!!
   
 
   <h3>DNI</h3>
@@ -69,7 +69,7 @@ I am very silly though once u get 2 know me!!
 
 ☆  <p>☆ If we have mutual interests (or if ur curious abt mine)
     
-☆ Trigun/TMNT/Sk8/etc. fans!! 
+☆ Trigun/TMNT/LMK/Sk8/etc. fans!! 
   
 ☆ Literally anybody just dont be weird lmao</p>
  
