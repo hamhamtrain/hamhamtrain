@@ -17,7 +17,7 @@ I am very silly though once u get 2 know me!!
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
-☆  If you happen to see me, feel free to drop by and say hi! 
+☆  If you happen to see me, feel free to drop by and say hi! I'm usually at spawn near the tree ☀️
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
   
