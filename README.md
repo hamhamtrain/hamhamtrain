@@ -74,5 +74,5 @@ I am very silly though once u get 2 know me!!
 ☆ Literally anybody just dont be weird lmao</p>
  
  <h3>!!</h3>
- ☆ <p>ask for socials</p>
+
 </center>
