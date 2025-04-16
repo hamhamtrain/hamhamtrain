@@ -54,7 +54,7 @@ I am very silly though once u get 2 know me!!
 
 ☆  some of my interests include:
   
-☆  tmnt, lmk, trigun, tbhk, sk8, revstar, paralive, hamtaro + more!!
+☆  tmnt, lmk, trigun, tbhk, sk8, ace attorney, revstar, paralive, hamtaro + more!!
   
 
   <h3>DNI</h3>
