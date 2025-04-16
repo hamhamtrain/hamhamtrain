@@ -13,7 +13,7 @@ I am very silly though once u get 2 know me!!
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
     
-☆ I'm ok w/ any interactions so long as they're purely platonic!! 
+☆ I'm ok w/ any interactions so long as they're purely platonic!!
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
