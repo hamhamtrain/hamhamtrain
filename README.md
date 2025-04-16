@@ -26,6 +26,7 @@ I am very silly though once u get 2 know me!!
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
 ☆ I say mew a lot so don't get too surprised if i start meowing like a cat lmao
+
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
 ☆ I'm not very good w/ words so if I say/do anything that bothers u pls lmk 
