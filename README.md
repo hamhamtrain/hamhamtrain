@@ -30,9 +30,6 @@ I'm usually at spawn near the tree ☀️
 
 •☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
-☆ I'm not very good w/ words so if I say/do anything that bothers u pls lmk 
-
-•☽────✧˖°˖☆˖°˖✧────☾••☽────✧˖°˖☆˖°˖✧────☾•
 
 
 
